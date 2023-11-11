@@ -1,2 +1,2 @@
-
+Cubo Rubik
 
